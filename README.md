@@ -5,4 +5,4 @@ first bts run game in the ir
 
 
 
-All copyright @c1plys <3 .
+All copyright @zahednia <3 .
